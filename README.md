@@ -34,7 +34,7 @@ SOUL KILLER OFC bot is,
 * 𝗙𝗢𝗥𝗞 𝗡𝗢𝗪
 
 <p align="left">
-<a href="https://github.com/Ayeshherath/SOUL-KILLER-OFC-BOT/fork"><img align="center" src="https://telegra.ph/file/3514997e86c4bb12d8f67.png" alt="Fork and deploy" height="35" width="155" /></a>
+<a href="https://github.com/Ayeshherath/SOUL-KILLER-OFC-BOT/fork"><img align="center" src="https://telegra.ph/file/82f8d65f56c7cc63d98bf.png" alt="Fork and deploy" height="35" width="155" /></a>
 
 # 
 
