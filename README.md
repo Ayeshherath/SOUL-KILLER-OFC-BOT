@@ -137,8 +137,6 @@ THANAKS FOR USNING QUEEN ELISA 💃💖
 ![Visitor Count](https://profile-counter.glitch.me/DarkMakerofc/count.svg)
 
 <h1>💗</h1> 
-<b>Thanks For</b> -
-
- [thashi 💖]() for Voice ,[slrealtech](https://youtube.com/slrealtech) , [darkalpha](http://github.com/SOUL KILLER OFC) and [isuru]() thanks for helps 💖
+<b>Thanks for</b>
 
  ## [ WHATSAPP GROUPS ](https://github.com/SOULKILLER/groups#README.md)
